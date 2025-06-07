@@ -7,8 +7,7 @@
 ✉️ chamudithapasindu54@gmail.com
 
 [GitHub: th3gh0s8](https://github.com/th3gh0s8)  
-[LinkedIn: th3gh0s8](#) (add your profile link if available)
-
+[LinkedIn: th3gh0s8](#)
 ---
 
 ## Professional Summary
